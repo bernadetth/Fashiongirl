@@ -1,2 +1,2 @@
 # Fashiongirl
-xoxo gossip girl
+xoxo 
